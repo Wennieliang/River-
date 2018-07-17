@@ -1,1 +1,14 @@
-# River-
+            Nowadays, short stories are becoming more and more popular around us.  However, how to write a good story to attract the readers become the most essential things for the writer. Therefor, I think an excellent short story should be vivid and coherent. For the reason that if a story is vivid, then the readers will feel like they were part of the story, which can make the reader to have an experience. As for the coherent, once the readers start to read the story, they cannot help to stop reading until they have the whole story, which can tightly catch the readers’ hearts.
+          If a story is vivid, it will trigger readers’ interest and make them to get further reading. For instance, the husband in Raymond Carver’s story ‘ Cathedral’, when the blind man ask the husband to talk about what a cathedral like in the TV, the husband could not describe it, and the blind man encourage him to draw it out. Later the writer just shows us a picture that the blind man hold the husband’s hand and follow the hand movement to feel how the cathedral like, and what the cathedral have, such as the grant arches and wide doors. This photo will pull the readers to jump into an amazing European middle age tour. Also, the author uses a large amount of verbs to make the essay lively.  For example, in the scenarios that the blind man asked if he could tough the wife’s face, the writer write about “he tough his fingers to every part of her face.” And when drawing the cathedral “ he ran his fingers over the paper.” Those scenes make a perfect story.
+          A coherent story has the irresistible appeal for the readers and when the people starts to reading, they cannot pull themselves out of the book by a series of consistent plot. For example, in Alice Munro’s short story ‘ Royal Beatings’, Flo go to find Rose’s father and try to let her husband to give Rose a beating. Therefore, when we read until here, we will want to know how serious the beating is, so we are keen to keep reading. And we can later find out Rose’s father beat her very bad actually can use tragedy to describe, because no matter how the way Rose begging and her father just do not stop this cruel punishment and we also can know how desperate Rose is. Later, we also can notice how her stepmother changes the feeling and attitude to her. Flo begin to comfort Rose and bring a jar of cold cream to help Rose to easy her pain mentally and physically. This coherent story line just makes us not willing to stop reading.
+         Finally, from my point of view, I think a good story should be vivid and coherent, because it is not only can significantly attract readers’ attention but also can lead a right path for readers to get into the story.
+
+
+
+
+
+
+
+Reference:
+Raymond Carver. Cathedral. New York, NY: W.W. Norton and Company, 2015.         
+From p202-p212.
